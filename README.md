@@ -1,0 +1,2 @@
+# NEX.AI
+We are a start-up, which can provide easy, efficient and low-cost safety to your content against piracy. Whether you are a software developer, app developer, multinational corporation, person making digital content, independent movie maker, or an organisation with a subscription based service; if you are looking to block the transfer of your content and products on piracy platforms, Better Call NOPIRATE.bl !
